@@ -2,5 +2,5 @@
 - 👀 I’m interested in 
 - 🌱 I’m currently learning how to
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me: smooochy
+- 📫 How to reach me: 
 - ⚡ Fun fact: 
